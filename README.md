@@ -23,7 +23,7 @@ Muh. Fikry Haykhal        E1E122110
 
 Muhammad Faiz Alimuddin   E1E122117
 
-Muhammad Rezeky Ananda    E1E122122
+Muhammad Rezky Ananda    E1E122122
 
 Rosalina                  E1E122138
 
